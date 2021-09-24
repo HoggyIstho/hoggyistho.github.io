@@ -1,5 +1,5 @@
 
-                                                                           Política de privacidad
+                                                                Política de privacidad
                                                                            
 Fecha de vigencia: 2 de marzo de 2021
 
